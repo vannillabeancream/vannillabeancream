@@ -16,7 +16,7 @@ dniuf , hvyiwec . i dont like strangerz unless my friends know u or im comfy wit
 
 # - <img width="726" height="67" alt="image" src="https://github.com/user-attachments/assets/eefa9edb-6aaa-4a9d-8ebc-99d4ca2dd61a" />
 
-ppl i trust when regressed --> Okin , Neo , Xan ,Johnny, Rej , Vic + Cacao !! Everyone else, iwec if friend!
+ppl i trust when regressed --> Neo , Xan ,Johnny, Rej , Vic + Cacao !! Everyone else, iwec if friend!
 
 ໒꒰ྀི ˶> ˕ <˶꒱ྀི১ oki thas all bye !!
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/8b95d4cd-ffee-46ee-80d7-eebb37ee5e3d" />
