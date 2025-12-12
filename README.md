@@ -12,6 +12,8 @@
 
 ᕱ⑅ᕱ She doesnt like seeing her friends sad, or anyone thats upset, so she tends to try to cheer others up
 
+ᕱ⑅ᕱ  Tonetags arent neccessary , but you can use them. she might ask what they mean however.
+
 ᕱ⑅ᕱ  Gets uncomfy very easily, and will go non-verbal if shes doesnt feel safe, dont take it to heart, she doesnt mean to seem rude.
 
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/423303b6-9b89-4454-a344-3425bf019569" />   
@@ -23,6 +25,10 @@
 ᕱ⑅ᕱ  Fem terms only . 
 
 ᕱ⑅ᕱ  Ships dni, it makes her uncomfy, and its just weird to ship yourself with a regressor..
+
+ᕱ⑅ᕱ  When she types, some letters are replaced and some are just left off completely. do NOT mock her, she will get overwhelmed and go nonverbal. 
+
+ᕱ⑅ᕱ  Gets upset and/or sad really easily. please int with care ! ( This goes along with her getting uncomfortable easily )
 
 # - <img width="726" height="67" alt="image" src="https://github.com/user-attachments/assets/eefa9edb-6aaa-4a9d-8ebc-99d4ca2dd61a" />
 
