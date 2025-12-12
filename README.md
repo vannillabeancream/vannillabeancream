@@ -16,7 +16,7 @@
 
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/423303b6-9b89-4454-a344-3425bf019569" />   
 
-<--- ME !! ME !!
+╰┈➤ˎˊ˗ ME !! ME !!
 
 ᕱ⑅ᕱ  Call her Cream or Claire, she responds better to claire however
 
