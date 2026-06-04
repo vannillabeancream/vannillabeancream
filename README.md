@@ -40,7 +40,7 @@
 
 ᕱ⑅ᕱ  --->  Johnny , Rej , Velv , Vic , Shaw , these are her safe people . 
 
-ᕱ⑅ᕱ  ---> Neo , Xander , Cosmo = Guardians , these are the people she trusts the absolute most.
+ᕱ⑅ᕱ  ---> Xander / noodle = Guardians , these are the people she trusts the absolute most.
 
 ᕱ⑅ᕱ  Likes to draw , paint and play games, so shes usually offtab watching yt or doing something anyway
 
